@@ -1,1 +1,0 @@
-https://Nubak.github.io/rsschool-cv/cv
