@@ -1,1 +1,1 @@
-https://Nubak.github.io/rsschool-cv/cv
+https://Nubak.github.io/rsschool-cv/
